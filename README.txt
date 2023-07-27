@@ -1,0 +1,1 @@
+Essa replica é unicamente para mostrar habilidades, não servindo para comercialização
